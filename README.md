@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ReibiZedd
+- 👀 I’m interested in the complete domination over tecnology
+- 🌱 I’m currently learning how to mod/hack diffrent games and consoles (just for fun)
